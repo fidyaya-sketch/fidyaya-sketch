@@ -1,8 +1,9 @@
 <h1 align="center">Hi, its FIDYAAAA</h1>
 <h3 align="center">A passionate person.. righttt</h3>
 
-- 💻 An newbie Computer Science
-- ✨ A girl who love learn
+- 💻 A Computer Science **newbie**
+  
+- ✨ A girl who **loves** learning
 
 - 📫 How to reach me **fidyahahaha@gmail.com**
 
