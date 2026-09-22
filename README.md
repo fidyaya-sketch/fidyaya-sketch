@@ -1,4 +1,4 @@
-<h1 align="center">Hi, its FyRisk</h1>
+<h1 align="center">Hi, its Fidyaaa</h1>
 <h3 align="center">A passionate person.. righttt</h3>
 
 - 📫 How to reach me **fidyahahaha@gmail.com**
