@@ -1,5 +1,5 @@
 <h1 align="center">Hi, its FIDYAAAA</h1>
-<h3 align="center">A passionate person.. righttt</h3>
+<h3 align="center">WELCOME A BOARD on my pages</h3>
 
 - 💻 A Computer Science **newbie**
   
