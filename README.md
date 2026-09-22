@@ -1,4 +1,4 @@
-<h1 align="center">Hi, its fidyaya-sketch</h1>
+<h1 align="center">Hi, its FIDYAAAA</h1>
 <h3 align="center">A passionate person.. righttt</h3>
 
 - 💻 An newbie Computer Science
