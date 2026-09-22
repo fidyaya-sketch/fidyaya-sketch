@@ -8,6 +8,7 @@
 - 📫 How to reach me **fidyahahaha@gmail.com**
 
 - ⚡ Fun fact **I'm Pretty(asf)**
+- 🚨 REDRED @cortis
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
