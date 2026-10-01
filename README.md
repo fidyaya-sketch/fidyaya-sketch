@@ -5,7 +5,7 @@
   
 - ✨ A girl who **loves** learning
 
-- 📫 How to reach me **fidyahahaha@gmail.com**
+- 📫 Reach me here **fidyahahaha@gmail.com**
 
 - ⚡ Fun fact ima KWON's gurl
 - 🚨 REDRED @cortis
