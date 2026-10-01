@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **fidyahahaha@gmail.com**
 
-- ⚡ Fun fact **I'm Pretty(asf)**
+- ⚡ Fun fact ima KWON's gurl
 - 🚨 REDRED @cortis
 
 <h3 align="left">Connect with me:</h3>
