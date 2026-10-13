@@ -1,5 +1,5 @@
-<h1 align="center">eh!? loh?! hai!! halo!! sama FIDYA LAGI NIH!!!</h1>
-<h3 align="center">WELCOME ABOARD to my page</h3>
+<h1 align="center">WELCOME ON BOARD!!!</h1>
+<h3 align="center">It's my crazy freaky page</h3>
 
 - 💻 A Computer Science **newbie**
   
